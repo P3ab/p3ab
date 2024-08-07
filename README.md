@@ -3,6 +3,6 @@
 ☁ ⠀ ➴ ⠀ Aline __Gomes__ ⠀ ⁾⁾
 ⁺⠀ 16⠀┄⠀ anos de idade   , fem cis   , namorando    ⠀｡
 
-⤹⠀ pronouns ⠀**:**⠀ ela + dela ⠀꜆⠀💤
+⤹⠀ pronouns ⠀__:__⠀ ela + dela ⠀꜆⠀💤
 
-⏖⠀ **amatur ⠀+⠀ artist**
+⏖⠀ **student ⠀+⠀ artist**
